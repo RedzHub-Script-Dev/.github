@@ -1,4 +1,3 @@
-# Redz Hub Script - Best FREE Roblox Script Hub [Official Repository]
 
 [![Redz Hub Download](https://i.imgur.com/lwpqew1.png)](https://cheatheaven.org/go/redz-hub-script/) <br>
 
